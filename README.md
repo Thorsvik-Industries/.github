@@ -1,3 +1,3 @@
-# Thorsvik Industries LLC
+# Thorsvik Industries
 
 We build what you imagine.
